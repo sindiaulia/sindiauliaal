@@ -1,0 +1,2 @@
+# sindiauliaal
+tugas2
